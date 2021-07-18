@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Ali, you can call me Eli
+- 👀 I’m interested in Artificial Intelligence
+- 🌱 I’m currently learning how to make functions out of emotions
+- 💞️ I’m looking to collaborate on anyone whois interested in having an awesome future.
+- 📫 How to reach me ali.aktas.dev@gmail.com or +44 1273 90 1644
